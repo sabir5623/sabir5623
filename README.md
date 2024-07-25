@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sabir5623
-- 👀 I’m interested in ... DATA ANALYTICS
+- 👀 I’m interested in ... DATA/BUSINESS ANALYTICS
 - 🌱 I’m currently learning ... AI- BUSINESS INTELLIGENCE ANALYTICS
 - 💞️ I’m looking to collaborate on ... PROJECT ON DATA FIELDS
 - 📫 How to reach me ... https://www.linkedin.com/in/md-sabir-ali/
