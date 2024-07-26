@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... DATA/BUSINESS ANALYTICS
 - 🌱 I’m currently learning ... AI- BUSINESS INTELLIGENCE ANALYTICS
 - 💞️ I’m looking to collaborate on ... PROJECT ON DATA FIELDS
-- 📫 How to reach me ... https://www.linkedin.com/in/md-sabir-ali/
+- 📫 You can reach me at ... https://www.linkedin.com/in/md-sabir-ali/
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ... I havn't Travel Any Country Yet
 - 
