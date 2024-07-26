@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ... I havn't Travel Any Country Yet
 - 
-- ## About Me
+## About Me
   
 With a passion for exploring data and uncovering trends, I thrive on transforming raw numbers into actionable insights. I specialize in conducting thorough analyses and creating visualizations that simplify complex information. Whether it's optimizing processes or identifying opportunities for improvement, I am committed to helping businesses harness the power of their data. Let's connect and discuss how I can contribute to your team's success.
 
